@@ -1,0 +1,1 @@
+Hi, My name is Wesley Bartz and i am a 3rd semester student at blackhawk technical college. I have enjoyed my time at the college so far and am eager to put my skills to use in my chosen profession.
